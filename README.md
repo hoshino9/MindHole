@@ -1,0 +1,2 @@
+# MindHole
+My ideas
